@@ -1,2 +1,1 @@
-!
-![VOVAN COIN](https://github.com/user-attachments/assets/bf2e3c25-8593-48c4-a084-89b9bc0b09c4)
+![VOVAN COIN](https://github.com/user-attachments/assets/906b27f2-473f-42cd-ad34-7a600379883e)
